@@ -1,0 +1,1 @@
+# nexkor_partnership_proposal
